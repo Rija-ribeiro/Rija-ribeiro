@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Rija-ribeiro
+- 👀 I’m interested by programation
+- 🌱 I’m currently learning python
+- 📫 you can contact me with discord @.rija. or e-mail rija.ribeiro@mailo.com
